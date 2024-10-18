@@ -47,7 +47,7 @@ Hello there! I'm Maria Layane, a technology enthusiast passionate about creativi
 - Ler histórias de suspense e terror 📚
 - Fazer crochê e amigurumis 🧶
 - Cozinhar receitas novas 🍳
-- Brincar com meu cachorro 🐶❤️
+- Brincar com minha cadela 🐶❤️
 
 
 ---
